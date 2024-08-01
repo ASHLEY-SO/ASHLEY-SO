@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ASHLEY-SO
+- 👀 I’m interested in watching film
+- 🌱 I’m currently learning HTML & CSS
+- 💞️ I’m looking to collaborate on team members
+- 📫 Reach me by ig
+- 😄 Pronouns: Cantonese, Chinese, English
+- ⚡ Fun fact: I am a girl who behave as a boy
